@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-My GitHub Sponsors profile is live! You can sponsor me to support my open source work 💖 https://github.com/sponsors/GrandSlam4k?o=sd&sc=t
+My GitHub Sponsors profile is live! You can sponsor me to support my open source 
 
 GrandSlam Recording Studio  @gramzman28
 https://github.com/gramzman28
