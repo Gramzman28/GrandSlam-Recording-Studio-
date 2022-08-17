@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 <!--
-**GrandSlam4k/Gramzman28** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Gramzman28** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
@@ -16,9 +16,8 @@ Here are some ideas to get you started:
 -->
 My GitHub Sponsors profile is live! You can sponsor me to support my open source work 💖 https://github.com/sponsors/GrandSlam4k?o=sd&sc=t
 
-GrandSlam Recording Studio (GrandSlam4k) @gramzman28 @GGrandslam4k
-https://github.com/GrandSlam4k/gramzman28
-@GramzLee @grandslam4k
+GrandSlam Recording Studio  @gramzman28
+https://github.com/gramzman28
 
 https://www.facebook.com/GrandSlamRecordingStudio4k/
 
