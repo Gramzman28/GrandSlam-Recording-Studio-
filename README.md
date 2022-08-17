@@ -23,15 +23,14 @@ https://www.facebook.com/GrandSlamRecordingStudio4k/
 
 https://twitter.com/gramzman28?t=vk-35dpp0Zl1lLaJvjUsww&s=09
 
-"GrandSlam Recording Studio (GrandSlam4k) - Recording Studio" https://grandslamrecordingstudio.com GrandSlam4k 38MG+33 Youngstown, OH, USA
-GrandSlam4k
+"GrandSlam Recording Studio (GrandSlam4k) - Recording Studio" https://grandslamrecordingstudio.com  38MG+33 Youngstown, OH, USA
 
 
 38MG+33 Youngstown, Ohio
 
 
 
-BUSINESS NAME: GrandSlam Recording Studio (GrandSlam4k) 
+BUSINESS NAME: GrandSlam Recording Studio  
 
 TABLE OF CONTENT
 
